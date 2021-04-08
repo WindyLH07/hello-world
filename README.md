@@ -1,2 +1,2 @@
 # hello-world
-Practice for TW
+The writing of writing something is for writing about something that is gonna be written for something that's worth writing for       
